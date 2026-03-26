@@ -42,7 +42,8 @@ Busco minha primeira oportunidade na área de desenvolvimento, com o objetivo de
 
 ## 📫 Contato
 
-📧 Email: samerbalz@gmail.com  
+💼 [LinkedIn](https://www.linkedin.com/in/samerzs)
+📧 [Email](mailto:samerbalz@gmail.com) 
 
 ---
 
